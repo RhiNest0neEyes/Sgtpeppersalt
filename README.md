@@ -4,6 +4,6 @@
 
 <br><br>
 
-✝ <a href="https://kofufuku.straw.page/">straw</a> / ✝ <a 
+✝ <a href="https://kofufuku.straw.page/">straw</a> / ✝ 
 </div>
 
